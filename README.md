@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Juanzinn
+- 👀 I’m interested in aprender a programar
+- 🌱 I’m currently learning  a programar no colegio
+- 💞️ I’m looking to collaborate on  em trabalhos que me ajudem a melhorar
+- 📫 How to reach me  você pode me contactar pelo meu e-mail juanpablpmolina@gmail.com
